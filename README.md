@@ -6,7 +6,7 @@ Email: jx2553@columbia.edu
 
 **💡 About Me**
 
-Hi, I'm Tinklyn Xiang! I'm a Rising Junior at Columbia University studying Computer Science and Public Health with interests in Design, Management and Sustainable Development! Aiming to craft customer-first experiences I loves building systems that bring in creativity and REAL human interactions.
+Hi, I'm Tinklyn Xiang! A Rising Junior at Columbia University studying Computer Science and Public Health with interests in Design, Management and Sustainable Development! Aiming to craft customer-first experiences I loves building systems that bring in creativity and REAL human interactions.
 
 Feel free to reach out — I’m always up for learning something new or collaborating on something meaningful!
 
