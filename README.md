@@ -14,5 +14,5 @@ Feel free to reach out — I’m always up for learning something new or collabo
 
 Python (NumPy, pandas, Matplotlib), C, CSS, C++, Java, Javascript, HTML, Swift, Rust, React, React Native, Flask, Firebase, Git, VS Code, IntelliJ, Eclipse, Microsoft Office, Adobe Creative Suite, Rhino3D, 3ds Max, Adobe Illustrator, Photoshop, Premiere Pro
 
-🔗 https://linktr.ee/tinklynnnx 🔗 https://tinklynnnx.framer.ai  🔗 https://speakwitharts.squarespace.com
+🔗 https://linktr.ee/tinklynnnx 🔗 https://tinklynnnx.framer.ai 
 
