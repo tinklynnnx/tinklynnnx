@@ -1,12 +1,10 @@
 **💭 Contact Information**
 
-LinkedIn: www.linkedin.com/in/tinklyn-xiang
-
-Email: jx2553@columbia.edu  
+LinkedIn: www.linkedin.com/in/tinklyn-xiang | Email: jx2553@columbia.edu  
 
 **💡 About Me**
 
-Hi, I'm Tinklyn Xiang! A Rising Junior at Columbia University studying Computer Science and Public Health with interests in Design, Management and Sustainable Development! Aiming to craft customer-first experiences I loves building systems that bring in creativity and REAL human interactions.
+Hi, I'm Tinklyn Xiang! A Rising Junior at Columbia University studying Computer Science and Public Health with interests in Design, Management and Sustainable Development! Aiming to craft customer-first experiences I loves building systems that bring in creativity and REAL human interactions!
 
 Feel free to reach out — I’m always up for learning something new or collaborating on something meaningful!
 
@@ -24,7 +22,5 @@ Global China Connection (VP Pre-Professional); Kappa Phi Lambda Multicultural So
 Organization of Rising Entrepreneurs; Application Development Initiative; Women in Computer Science; Design@Columbia;
 Phi Gamma Nu Business Fraternity; Columbia Culinary Society; Columbia China Dance; Orchesis: A Dance Group
 
-🔗 https://linktr.ee/tinklynnnx
-🔗 https://tinklynnnx.framer.ai 
-🔗 https://speakwitharts.squarespace.com
+🔗 https://linktr.ee/tinklynnnx 🔗 https://tinklynnnx.framer.ai  🔗 https://speakwitharts.squarespace.com
 
