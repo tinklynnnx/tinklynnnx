@@ -1,6 +1,8 @@
 **💭 Contact Information**
 
-LinkedIn: www.linkedin.com/in/tinklyn-xiang | Email: jx2553@columbia.edu  
+Email: jx2553@columbia.edu  
+
+LinkedIn: www.linkedin.com/in/tinklyn-xiang
 
 **💡 About Me**
 
