@@ -2,11 +2,7 @@
 
 Email: jx2553@columbia.edu  
 
-LinkedIn: www.linkedin.com/in/tinklyn-xiang
-
-🔗 https://tinklynnnx.framer.ai 
-
-🔗 https://linktr.ee/tinklynnnx 
+🔗 www.linkedin.com/in/tinklyn-xiang | https://tinklynnnx.framer.ai | https://linktr.ee/tinklynnnx 
 
 
 **💡 About Me**
