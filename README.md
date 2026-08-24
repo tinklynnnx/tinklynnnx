@@ -3,6 +3,8 @@
 Email: jx2553@columbia.edu  
 
 LinkedIn: www.linkedin.com/in/tinklyn-xiang
+🔗 https://tinklynnnx.framer.ai 
+🔗 https://linktr.ee/tinklynnnx 
 
 **💡 About Me**
 
@@ -21,5 +23,5 @@ Math Modelling, Introduction to Databases, Data Structures, Fundamentals of Comp
 Global China Connection (VP Pre-Professional), Kappa Phi Lambda Multicultural Sorority (VP External), Columbia
 Organization of Rising Entrepreneurs, Application Development Initiative, Women in Computer Science, Design@Columbia, Columbia Culinary Society, Columbia China Dance, Orchesis: A Dance Group
 
-🔗 https://linktr.ee/tinklynnnx | https://tinklynnnx.framer.ai 
+
 
