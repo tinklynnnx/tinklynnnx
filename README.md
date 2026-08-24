@@ -8,6 +8,7 @@ LinkedIn: www.linkedin.com/in/tinklyn-xiang
 
 🔗 https://linktr.ee/tinklynnnx 
 
+
 **💡 About Me**
 
 Hi, I'm Tinklyn Xiang! A Rising Junior at Columbia University studying Computer Science and Public Health with interests in Design, Management and Sustainable Development! Aiming to craft customer-first experiences I loves building systems that bring in creativity and REAL human interactions!
