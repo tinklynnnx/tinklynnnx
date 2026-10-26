@@ -1,6 +1,7 @@
-**💭 Contact Information**
+**💭 General Information**
 
 Email: jx2553@columbia.edu  
+Currently Working on: https://humor-week6-v3.vercel.app/
 
 🔗 www.linkedin.com/in/tinklyn-xiang | https://tinklynnnx.framer.ai | https://linktr.ee/tinklynnnx 
 
